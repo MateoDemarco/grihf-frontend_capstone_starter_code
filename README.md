@@ -1,0 +1,1 @@
+StayHealthy Inc. is a non-profit organization dedicated to improving healthcare facilities in remote areas with minimal to no medical facilities or resources. The Executive Director has started the Go digital initiative as part of StayHealthy's broader vision to maximize reach.
